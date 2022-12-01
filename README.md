@@ -20,4 +20,4 @@ Proof that he will exit scam and just shows his retardism.
 capture.cpp, contains his menu and more. So UD guys right? 💔
 
 ## Link to Linora (a self leak of another idiot)
-#https://github.com/pastor-ritz/Fortnite-Linora-Internal-Updated
+https://github.com/pastor-ritz/Fortnite-Linora-Internal-Updated
