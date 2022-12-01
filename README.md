@@ -21,4 +21,4 @@ capture.cpp, contains his menu and more. So UD guys right? 💔
 
 ## Link to Linora (a self leak of another idiot)
 https://github.com/pastor-ritz/Fortnite-Linora-Internal-Updated
-![alt text]([https://cdn.discordapp.com/attachments/1042223408060051575/1047979267142729871/image.png])
+![alt text](https://cdn.discordapp.com/attachments/1042223408060051575/1047979267142729871/image.png)
