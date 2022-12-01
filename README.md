@@ -1,6 +1,6 @@
 # ProxyFN-Nuked
-###ProxyFN is a paste created by LeProxy.
-###This "makfn" or whatever is completely pasted and terrible. The cheat is made by retard Leproxy and retard fake naze. These kids are stealing brand names and what ###not. I #will not let these pastes happen so I am doing a little leak. They claim the internal is ud on both anti-cheats.
+ProxyFN is a paste created by LeProxy.
+This "makfn" or whatever is completely pasted and terrible. The cheat is made by retard Leproxy and retard fake naze. These kids are stealing brand names and what not. I will not let these pastes happen so I am doing a little leak. They claim the internal is ud on both anti-cheats.
 
 - proof of using minhook
 ![alt text](https://cdn.discordapp.com/attachments/1017574455406497842/1047305859497214012/image.png)
