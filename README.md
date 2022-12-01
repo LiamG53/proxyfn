@@ -22,3 +22,10 @@ capture.cpp, contains his menu and more. So UD guys right? 💔
 ## Link to Linora (a self leak of another idiot)
 https://github.com/pastor-ritz/Fortnite-Linora-Internal-Updated
 ![alt text](https://cdn.discordapp.com/attachments/1042223408060051575/1047979267142729871/image.png)
+
+## Discord tags of idiots
+LeProxy#2022 (986056426692681738)
+naze#1250 (964100409910231100)
+
+## Expose his developer
+Not the real naze, even though the real naze is also an idiot this one is impersonating naze.
